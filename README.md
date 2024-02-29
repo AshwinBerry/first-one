@@ -1,3 +1,3 @@
 # first-one
 
-Aliya nee oru kunna.
+Aliya nethan la
